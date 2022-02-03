@@ -1,3 +1,4 @@
-Ey, I'm nuclearphone; I go by Skylla or Ulrich though. Mainly a metal musician, I dabble in programming from time to time. Currently working on a language.
+I go by Skylla or Ulrich.  
+Mainly a metal musician, though I am bad at it.  
+I dabble in programming from time to time.  
 You can reach me @ hidden#0183.
-
